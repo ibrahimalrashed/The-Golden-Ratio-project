@@ -146,8 +146,8 @@ second one ,the curves still there after we converted them and we don't want tha
 
 
 
-#### Instagram : https://www.instagram.com/ibrahimalrashd
-#### Artstaion: https://www.artstation.com/ibrahimalrashd
+#### Instagram : https://www.instagram.com/ibrahimalrashedd
+#### Artstaion: https://www.artstation.com/ibrahimalrashed
 
 
 
